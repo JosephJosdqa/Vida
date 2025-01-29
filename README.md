@@ -9,7 +9,7 @@ OUR WebSite : [VIDA](http://vida.team/)
 
 ## About US
 
-> Vida: Intelligent Video-Audio Fusion Tool
+> Vida: AI phone agents for business.
 
 ### Versatile Applications
 
