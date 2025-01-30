@@ -5,7 +5,7 @@
 
 OUR Twitter :[VIDA](https://x.com/VID__AI)
 
-OUR WebSite : [VIDA](http://vida.team/)
+OUR WebSite : [VIDA](http://vidaai.fun/)
 
 ## About US
 
