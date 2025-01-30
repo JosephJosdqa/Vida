@@ -3,7 +3,7 @@
 
 ![Vida](https://socialify.git.ci/JosephJosdqa/Vida/image?description=1&font=KoHo&language=1&name=1&pattern=Circuit+Board&theme=Dark)
 
-OUR Twitter :[VIDA](https://x.com/VID__AI)
+OUR Twitter :[VIDA](https://x.com/AI__VIDA)
 
 OUR WebSite : [VIDA](http://vidaai.fun/)
 
